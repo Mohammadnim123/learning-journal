@@ -9,3 +9,6 @@
  **2. I will use _criticism_ as my catalyst, not as a frustration.**
 
 **3. If I face a problem, I will _challenge_ it until I win and complete my path.**
+
+_comments_
+_I maked some changing to make my page more butiful
